@@ -16,4 +16,4 @@
 :smile::smile::smile::smile::smile::smile::smile:
 
 
-[![Everything is awesome 1 Hour Version](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](https://www.youtube.com/watch?v=cCKONHUigVk "Everything is awesome 1 Hour Version")
+[![Everything is awesome 1 Hour Version](https://img.youtube.com/vi/StTqXEQ2l-Y/0.jpg)](http://pansci.asia/wp-content/uploads/2016/05/46e24bbf9f2041cefb0b0f13812843ff.jpg "Everything is awesome 1 Hour Version")
